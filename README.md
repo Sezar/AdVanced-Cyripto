@@ -1,3 +1,0 @@
-# AdVanced-Cyripto
-
-sss
